@@ -30,3 +30,10 @@ Where to find the results
 -------------------------
 
 Write me ...
+
+
+How not to use it
+-----------------
+
+Don't delete everything and don't put pinnaples on pizzas
+
